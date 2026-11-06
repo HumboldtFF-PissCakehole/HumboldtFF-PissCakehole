@@ -12,4 +12,4 @@
 <p align="center"> $\color{#B70102}{\text{Amateur Piss Cakehole. Interact with Piss Cakehole's <33!!!!!}}$
 
 </details>
-  <img width="404" height="540" alt="Image" src="https://github.com/user-attachments/assets/cdcee33d-1f42-4da8-a9ee-c29b8b546298" />
+  <p align="center"><img width="404" height="340" alt="Image" src="https://github.com/user-attachments/assets/cdcee33d-1f42-4da8-a9ee-c29b8b546298" />

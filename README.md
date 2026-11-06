@@ -5,7 +5,7 @@
 <p align="center"><img width="451" height="714" alt="Image" src="https://github.com/user-attachments/assets/2932b744-d723-4fa5-ad9d-32382cb300a2" />
 
 <details>
-  <summary>$\color{#000000}{\text{HEY!}}$</summary> 
+  <summary>$\color{#B70907}{\text{HEY! Information's hihi.}}$</summary> 
  <p align="center"> $\color{#B70102}{\text{interact however you like. w2i + int... <3}}$
   <p align="center"> $\color{#B70102}{\text{focused on TF2 / FF'2, and also on a few other things.
 }}$ 

@@ -11,6 +11,7 @@
   <p align="center"> $\color{#B70102}{\text{focused on TF2 / FF'2, and also on a few other things.
 }}$ 
 <p align="center"> $\color{#B70102}{\text{Amateur Piss Cakehole. Interact with Piss Cakehole's <33!!!!!}}$
+<p align="center"> $\color{#B70102}{\text{DNI: TOXIC'S , PROBLEMATIC , NAZ'TS , RACISTS , HOMOPHOBIC , DARKSHIP / PROSHIP , PEDOPHILE'S}}$
 
 </details>
   <p align="center"><img width="404" height="340" alt="Image" src="https://github.com/user-attachments/assets/cdcee33d-1f42-4da8-a9ee-c29b8b546298" />

@@ -1,4 +1,4 @@
-<p align="center"<img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/859dfa0e-11fa-4221-aee5-c47216d35b50" />
+<p align="center"> <img width="350" height="40" alt="Image" src="https://github.com/user-attachments/assets/859dfa0e-11fa-4221-aee5-c47216d35b50" />
 <p align="center">$\color{#B70102}{\text{JERSEY YET.}}$
 <p align="center">$\color{#B02022}{\text{Glass Animals / Take a Slice. }}$
 
@@ -14,3 +14,4 @@
 
 </details>
   <p align="center"><img width="404" height="340" alt="Image" src="https://github.com/user-attachments/assets/cdcee33d-1f42-4da8-a9ee-c29b8b546298" />
+<p align="center"> <img width="350" height="40" alt="Image" src="https://github.com/user-attachments/assets/859dfa0e-11fa-4221-aee5-c47216d35b50" />
